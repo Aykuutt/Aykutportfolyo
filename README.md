@@ -1,1 +1,0 @@
-# Aykut.github.io
